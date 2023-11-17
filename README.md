@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @gonsaly
+- 👀 I’m interested in marketing of IT companies.
